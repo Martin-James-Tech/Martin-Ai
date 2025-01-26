@@ -1,10 +1,22 @@
-> **`Latest Updated : 26/01/2025`**
-<div align="center">
-	<h3🤡Martin-Ai WhatsApp Bot🤡<b/h3>
-<img src="" width="300" height="150">
-</div>
-<div align="center">
-</p>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=100&pause=1000&color=FF033E&center=true&width=1000&height=200&lines=..𝗠𝗮𝗿𝘁𝗶𝗻_𝗔𝗶......" alt="Typing SVG" /></a>
+  </p>
+
+`© Bot under construction ⚙️`
+
+---------
+
+### <br>  ❖ 𝗠𝗮𝗿𝘁𝗶𝗻 𝗔𝗶 ❖
+⚡ **`THE WORLD BEST WHATSAPP BOT CREATED BY 𝗠𝗮𝗿𝘁𝗶𝗻 𝗝𝗮𝗺𝗲𝘀 sir`** ⚡
+
+----------
+
+<a><img src='https://files.catbox.moe/vjwpj6.jpeg'/></a>
+
+-------
+
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&pause=1000&color=FFFFFF&background=000000&center=true&vCenter=true&multiline=true&random=true&width=435&lines=😎Martin-Ai_coming_soon😎" alt="Typing SVG" /></a>
+ 
+-----------
 	
 ## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F00&lines=HELLO+I+AM+MARTIN+JAMES+SIR)](https://git.io/typing-svg)
 
