@@ -9,7 +9,7 @@
 ## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F00&lines=HELLO+I+AM+MARTIN+JAMES+SIR)](https://git.io/typing-svg)
 
 <hr>
-<img src="https://readme-typing-svg.herokuapp.com?size=33&width=1000&lines=Welcome+To+Martin+Ai...;Created+by+Martin+James+sir...;World+Best+Whatsapp+Ai+Bot...;Simple+Java+Script+Bot...;Simple+And+Fast+Deploy...;Thank+You+For+Choosing+Martin+Ai..."
+<img src="https://readme-typing-svg.herokuapp.com?size=33&width=1000&lines=𝗪𝗲𝗹𝗰𝗼𝗺𝗲+𝗧𝗼+𝗠𝗮𝗿𝘁𝗶𝗻+𝗔𝗶...;Created+by+𝗠𝗮𝗿𝘁𝗶𝗻+𝗝𝗮𝗺𝗲𝘀+𝘀𝗶𝗿...;World+Best+Whatsapp+Ai+Bot...;Simple+Java+Script+Bot...;Simple+And+Fast+Deploy...;Thank+You+For+Choosing+Martin+Ai..."
             alt="Typing">
 
 <div align="center">
